@@ -7,3 +7,4 @@ VELORA STUDIO V3
 
 İletişim: 0533 464 57 13
 Instagram: @velorastudio.aii
+gmail : velorastudio.aii@gmail.com
